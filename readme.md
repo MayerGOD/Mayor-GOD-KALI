@@ -6,7 +6,7 @@
 
 Easy-E the shitposter
 
-[私の妄言集](twitter.com/158409)
+[私の妄言集](https://twitter.com/158409)
 
 # ファーストコミットまで4年かかってるらしい
 
