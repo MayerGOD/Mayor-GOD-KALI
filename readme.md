@@ -12,4 +12,4 @@ Easy-E the shitposter
 
 
 うんこ食べる？
-![a](https://mega.nz/file/PWZnUbZR#kP8bHECMNN-nNUVD8Tpp-FizfaTzxMwdZLQBUpi1Quk)
+![a](https://i.imgur.com/WidZO2r.png)
